@@ -28,6 +28,3 @@ What we also offer, not accounting for your experience and deck building skills,
 - Write down your thoughts about the game and detail your game flow.
 
 Analyse and reflect your matches to see how you can improve and what your thoughts were throughout the games with different decks.
-
-- 
-
